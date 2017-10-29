@@ -1,0 +1,3 @@
+# Hello, 
+# I'm Anthony, Depaul Class of 2016, History and Psychology. I was in politics for the last few years. And although I had the plan to take a coding boot camp course after the last election, here I finally am. I also recently completed the General Assembly online marketing certificate. But am excited to see where it may lead as I can now springboard myself into creating my vision. As for hobbies I ran my 1st and last marathon here in Chicago last October, but will only be pursuing 5ks this year. As well as some dance instruction, martial arts, and yoga.  
+# Hope to talk soon.
